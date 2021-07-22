@@ -36,9 +36,9 @@
 *To settle in on-site<br>
 
    ## HOBBIES<br>
-* explore new things 
-* listening music 
-* crafting
+* Explore new things 
+* Listening music 
+* Crafting
  
   
 
