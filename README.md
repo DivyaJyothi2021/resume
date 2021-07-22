@@ -16,7 +16,7 @@
   
    **~INTERMIDIATE:-**<br>
 *GOVERNAMENT JUNIOR COLLEGE FOR GIRLS<br>  
-*BREANCH    :mpc<br>
+*BRANCH    :mpc<br>
 *PERCENTAGE :80%<br>
 *ADDRESS   :kovvur<br>
 
